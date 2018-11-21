@@ -1,0 +1,4 @@
+pojemnosc dysku: C: 79,9GB; D: 142GB
+ilosc pamieci RAM: 8GB
+rodzaj i predkosc procesora: Intel Core i5; 1,80 GHz
+system: 64-bit
