@@ -1,5 +1,5 @@
 # **Bohemian Rhapsody**
-Jakiś czas temu wybrałam się na film przedstawiający historię zespołu **_Queen_**. Sala kinowa była pełna ludzi, widocznie dużo osób chciało poznać przeszłość legandarnego zespołu.
+Jakiś czas temu wybrałam się na film przedstawiający historię zespołu **_Queen_**. Sala kinowa była pełna ludzi, widocznie dużo osób chciało poznać przeszłość legendarnego zespołu.
 
 Film miał swoją premierę:
 
@@ -21,6 +21,6 @@ Film miał swoją premierę:
  3. Innuendo (1991)
 
 # **Ocena**
-~~Film był beznadziejny.~~ Film bardzo mi się podobał. Po seansie wyszłam z sali cała rozemocjnowana. Ostatnia część filmu jest odtwarzeniem kocertu **Live Aid** (1985). Ten fragment najbardziej trafił do mojego serca, czułam się tak samo jak po koncercie Guns n' Roses. Ekipa filmowa zrobiła kawał dobrej roboty, należą im się gratulacje.
+~~Film był beznadziejny.~~ Film bardzo mi się podobał. Po seansie wyszłam z sali cała rozemocjnowana. Ostatnia część filmu jest odtworzeniem kocertu **Live Aid** (1985). Ten fragment najbardziej trafił do mojego serca, czułam się tak samo jak po koncercie Guns n' Roses. Ekipa filmowa zrobiła kawał dobrej roboty, należą im się gratulacje.
 
 Opis filmu można znaleźć na stronie: https://www.imdb.com/title/tt1727824/
